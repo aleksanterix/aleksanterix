@@ -6,7 +6,7 @@
 
 💹 I prioritize high ROI tasks, over working hard on working hard. If GPT can do it, let GPT do it.
 
-📫 You can contact me at: Twitter **@aleksanterixx** or Telegram: **@aleksanterix**
+📫 You can contact me at: Twitter **@aleksanterixx**
 
 <!---
 aleksanterix/aleksanterix is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
